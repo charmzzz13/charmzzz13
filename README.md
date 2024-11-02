@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...open-source, and making a server with my awaiting (new) precision 5810 :)
 - 📫 How to reach me ...irisheyezzz85@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...I love grunge rock, cats, good food and KOVFEFE
 
 <!---
 charmzzz13/charmzzz13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
